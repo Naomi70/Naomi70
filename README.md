@@ -1,3 +1,3 @@
 - 👋 hola soy noemi
-- 💞️ tengo 16
+- 💞️ tenho 16
 - 📫 vivo en Maripa
